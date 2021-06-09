@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Há cerca de um ano atrás tomei a difícil decisão de encerrar minha carreira no meio corporativo 
+Há cerca de um ano tomei a difícil decisão de encerrar minha carreira no meio corporativo 
 em busca de uma carreira mais prazerosa e alinhada com meus interesses pessoais. Sou Engenheiro Civil 
 e um grande fã de video games, animações, animes e mangas. Decidi juntar esses elementos em uma profissão 
 em que pudesse utilizar meu raciocinio lógico e prazer em resolver problemas ao mesmo tempo em que vivesse 
